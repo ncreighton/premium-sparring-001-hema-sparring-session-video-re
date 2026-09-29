@@ -1,0 +1,2 @@
+# premium-sparring-001-hema-sparring-session-video-re
+You've got a pile of sparring videos, but are you actually learning from them? The HEMA Sparring Session Video Review Tracker transforms raw footage into a structured improvement system — no more aimless rewatching.  This Notion template solves the chaos of scattered notes and forgotten observations by providing a centralized database to timestamp
